@@ -1,0 +1,1 @@
+![school badge ](https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg.ccutu.com%2Fupload%2Fimages%2F2017-6%2Fp00039697.png&refer=http%3A%2F%2Fimg.ccutu.com&app=2002&size=f9999,10000&q=a80&n=0&g=0n&fmt=jpeg?sec=1620289107&t=8efca29f430a2b22c15b22b7e413e0fa)
